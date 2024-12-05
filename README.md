@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sandeepkumar199818@gmail.com**
 
-- 📄 Know about my experiences [LinkedIn/](https://www.linkedin.com/in/sandeep-kumar-b14599128/)
+- 📄 Know about my experiences [LinkedIn](https://www.linkedin.com/in/sandeep-kumar-b14599128/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
